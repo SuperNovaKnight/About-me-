@@ -21,8 +21,8 @@ Zodiac: Libra
 
 Status: Single,,,
  
-      /)    /)
-    (｡•ㅅ•｡)〝₎₎ my favorites! ✦₊ ˊ˗ 
+ /)    /)
+ (｡•ㅅ•｡)〝₎₎ my favorites! ✦₊ ˊ˗ 
 ╭∪─∪────────── ✦ ⁺.
 ┊ ◟﹫ Book : None
 ┊﹒𐐪 TV show : Metal Cardbots 
