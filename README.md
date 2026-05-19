@@ -11,9 +11,13 @@ Some basic info. about myself ☻
 General🎀:
 
 Name: Nyx/Elix
+
 Gender: Famale
+
 Sexuality: Pansexual 
+
 Zodiac: Libra
+
 Status: Single,,,
  
       /)    /)
