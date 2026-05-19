@@ -12,6 +12,7 @@ General🎀:
 
 Name: Nyx/Elix
 
+
 Gender: Famale
 
 Sexuality: Pansexual 
